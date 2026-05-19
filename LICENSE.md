@@ -1,4 +1,4 @@
-# 
+# new CCleaner para PC addons é o melhor CCleaner para PC addons com limpeza agendada e monitoramento do sistema. Seguro, confiável e otimizado para máximo desempenho.
 
 
 
